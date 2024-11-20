@@ -1,7 +1,7 @@
-Inos7
-tt: @21Inos
-tg: Inos04
-reddit: Inos-
+Hello I´m  Inos 
+retired fortnite semi pro 
+https://linktr.ee/inos4 
+my socials 
 
 
 <!---
