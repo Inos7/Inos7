@@ -1,6 +1,6 @@
-Hello I´m  Inos 
-retired fortnite semi pro 
-https://linktr.ee/inos4 
+Hello I´m  Inos                   
+
+https://linktr.ee/inos4                                         
 my socials 
 
 
