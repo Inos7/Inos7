@@ -1,2 +1,2 @@
 Github von Inos 
-https://guns.lol/inos
+macro Ersteller usw 
